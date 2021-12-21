@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Irutz20
+- 👀 I’m interested in Russian
+- 🌱 I’m currently learning Russian
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me : 이루츠#5181 on DISCORD
