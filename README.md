@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Irutz20
-- 👀 I’m interested in Russian
-- 🌱 I’m currently learning Russian
-- 💞️ I’m looking to collaborate on NOTHING
-- 📫 How to reach me : 이루츠#5181 on DISCORD
+- 👋 Hi, I’m @Irutz20.
+- 👀 I’m interested in football and English.
+- 📫 How to reach me : I'll fix it in a bit.
+- Studying English at an international school to attend an American high school.
+- I'm preparing for the final exam, so please be careful with your words.
